@@ -10,3 +10,4 @@ tumare bhina hi kaise jiyege
 good morning sir aage bhi ye kis ka kitana hai kya 
 teri najar ka banke esara 
 sorry this video is not get 
+sorry this video me bole sara subscribe 
