@@ -14,3 +14,4 @@ sorry this video me bole sara subscribe
 us din se kar ke 
 so beautiful 
 rutha rutha Jai shree Ram Ram Ram Ram Ram 
+so grate fully verified by Visa card and a whait hai kya karu phantom 
