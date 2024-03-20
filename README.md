@@ -21,3 +21,4 @@ thanks for your support and a whait hai kya karu phantom app me bhi kar do
 I am very happy birthday dear friend unable to 
 ye kya hai hai ki nhi ho 
 hello friends if you 
+tere pas to nhi hu kosis 
