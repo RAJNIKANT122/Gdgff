@@ -23,3 +23,4 @@ ye kya hai hai ki nhi ho
 hello friends if you 
 tere pas to nhi hu kosis 
 good morning sir aage bhi ye 
+sorry this video is not get the 
