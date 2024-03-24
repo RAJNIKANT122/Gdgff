@@ -26,3 +26,4 @@ good morning sir aage bhi ye
 sorry this video is not get the 
 bkhghg hai kya karu phantom 
 hello friends if you have any questions 
+I am a estudant and crypto peerless me bhi kar Dena 
