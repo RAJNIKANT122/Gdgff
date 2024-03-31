@@ -31,4 +31,5 @@ ghgygvtcr
 us din karana meaning bhi nahi hota h i 
 i hop music 🎶🎵🎶🎶🎶🎶 hai kya karu phantom app me bhi kar 
 I love you 
-ra j yvyyv hai kya karu phantom app me 
+ra j yvyyv hai kya karu phantom app me bhi kar do you have 
+ice 🍦🍦🍦 hai 
