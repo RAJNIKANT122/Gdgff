@@ -39,4 +39,4 @@ thanks for your support and
 i think it will t
 thanks for your information and 
 the drip ka burn the 
-thanks for the crypto earn a whait hai kya 
+thanks for the crypto earn a whait h
