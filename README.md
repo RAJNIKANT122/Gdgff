@@ -41,3 +41,4 @@ thanks for your information and
 the drip ka burn the 
 thanks for the crypto earn a whait h
 thanks ma'am thanks thanks 🤑 
+to the price manager position to the world crypto 
