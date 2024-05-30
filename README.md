@@ -42,7 +42,7 @@ the drip ka burn the
 thanks for the crypto earn a whait h
 thanks ma'am thanks thanks 🤑 
 to the price manager position to the world crypto 
-yes sir update us yy
+yes sir update us 
 jdhdhfh hai kya karu bro 
 yes sir very happy birthday dear fr
 ydhdh
